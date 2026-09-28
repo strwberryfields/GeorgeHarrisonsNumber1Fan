@@ -18,7 +18,7 @@
 - bpd , depression , anxiety
 - i can be insensitive
 - i do say rude things
-- bcz of my jealousy issues if you mean smth to me i might be upset that you with other ppl
+- bcz of my jealousy issues if you mean smth to me i might be upset that youre with other ppl
 - i do NOT support any of the beatles actions beside the positive ones
 > johhny cade : nonsharing
 
