@@ -56,7 +56,8 @@
 - mainly with @toastedmarshmellows but if you want to cuddle with me its always welcome!!
 <details>
 
-<details>
+</p>
+
 [strawpage!](https://finnysstrawpage.straw.page/ "With a Title") ୭ !! 🧁 
 
 ![image alt](https://github.com/GeorgeHarrisonsNumber1Fan/GeorgeHarrisonsNumber1Fan/blob/ae4dc7c0257b0d7019d6bbcc4a87c53d7707c3ee/%F0%9D%90%A9%F0%9D%90%A2%F0%9D%90%A7%20%E2%80%94%20%F0%9D%9F%8F%F0%9D%9F%8E%F0%9D%90%AF%F0%9D%90%9E%F0%9D%90%9D%20%E2%9C%A9.jpg)
