@@ -54,7 +54,7 @@
 - IAM CHRONICALLY OFFTAB PLS W2I
 - you dont have to ask to c+h !!
 - mainly with @toastedmarshmellows but if you want to cuddle with me its always welcome!!
-<details>
+
 
 </p>
 
